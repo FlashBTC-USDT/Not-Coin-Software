@@ -74,3 +74,7 @@ To get started with either the initial setup or the final version, follow these 
 
 For any inquiries, please contact me in Telegram: [Vector T13](https://t.me/vector_T13).
 
+## Contact
+
+If You Want To Buy Contact Me: [Vector T13](https://t.me/vector_T13).
+
