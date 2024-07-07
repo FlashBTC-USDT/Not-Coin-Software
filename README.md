@@ -76,5 +76,5 @@ For any inquiries, please contact me in Telegram: [Vector T13](https://t.me/vect
 
 ## Contact
 
-If You Want To Buy Contact Me: [Vector T13](https://t.me/vector_T13).
+If You Want To Buy Full Project Contact Me: [Vector T13](https://t.me/vector_T13).
 
